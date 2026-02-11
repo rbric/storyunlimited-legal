@@ -62,7 +62,7 @@ If we update this privacy policy, we will post the revised version here with an 
 
 If you have questions about this privacy policy, please contact us at:
 
-**Email:** privacy@storyunlimited.app
+**Email:** ulphin@gmail.com
 
 ---
 
